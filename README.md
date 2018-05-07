@@ -34,19 +34,30 @@
 
 ### **语料积累** 
 
-**Salary**    
-重要：    
+Salary 重要：    
 > reward the employees financially  
 > meet their material demand 物质需求  
 > It's hard-earned money 来之不易  
 
-不重要：  
+Salary 不重要：  
 > the sense of belonging 归属感   
 > room for professional growth and career advancement 职业上升空间  
 > the sense of fulfillment 成就感(achievement)  
 > interpersonal relationship 人际关系  
 > team spirit 团队精神  
 
+friction 好处
+> informative 信息量大  
+> factual 符合事实  
+
+only non-friction 坏处   
+> confine your interests 限制你的兴趣    
+
+Cooking Good?
+> strengthen the family bonds 建立更紧密的关系   
+
+大学教就业技能or知识？
+> profit-making 赚钱，赢利（为目的的学校）   
 
 ### **段子积累**
 
