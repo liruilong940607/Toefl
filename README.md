@@ -34,17 +34,17 @@
 
 **语料积累** 
 
-Salary    
+**Salary**    
 
-    - reward the employees <u>financially</u> 
-    - meet their <u>material demand</u> 物质需求
-    - It's <u>hard-earned</u> money 来之不易
+reward the employees <u>financially</u> 
+meet their <u>material demand</u> 物质需求
+It's <u>hard-earned</u> money 来之不易
     
-    - <u>the sense of belonging</u> 归属感 
-    - room for professional growth and career advancement 职业上升空间
-    - <u>the sense of fulfillment</u> 成就感(achievement)
-    - <u>interpersonal relationship</u> 人际关系
-    - <u>team spirit</u> 团队精神
+<u>the sense of belonging</u> 归属感 
+room for professional growth and career advancement 职业上升空间
+<u>the sense of fulfillment</u> 成就感(achievement)
+<u>interpersonal relationship</u> 人际关系
+<u>team spirit</u> 团队精神
 
 
 **段子积累**
