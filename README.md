@@ -36,16 +36,16 @@
 
 **Salary**    
 重要：    
-> reward the employees financially 
-> meet their material demand 物质需求
-> It's hard-earned money 来之不易
+> reward the employees financially  
+> meet their material demand 物质需求  
+> It's hard-earned money 来之不易  
 
 不重要：  
-> the sense of belonging 归属感 
-> room for professional growth and career advancement 职业上升空间
-> the sense of fulfillment 成就感(achievement)
-> interpersonal relationship 人际关系
-> team spirit 团队精神
+> the sense of belonging 归属感   
+> room for professional growth and career advancement 职业上升空间  
+> the sense of fulfillment 成就感(achievement)  
+> interpersonal relationship 人际关系  
+> team spirit 团队精神  
 
 
 ### **段子积累**
