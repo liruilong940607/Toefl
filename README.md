@@ -82,7 +82,7 @@ Cooking Good?
 
 **Leisure** - **Sports**
 
-> Many people enjoy participating in sports for recreation(娱乐) because it offers an opportunity to be part of a group. As a participant, you can join a team and enjoy all the benefits of membership, from shared experiences to a sense of belonging. Moreover, in training for a sport, an exercise routine contributes to your health.
+> Many people enjoy participating in sports for recreation(娱乐) because it offers an opportunity to be part of a group. As a participant, you can join a team and enjoy all the benefits of membership, from shared experiences to a sense of belonging. Moreover, in training for a sport, an exercise routine contributes to your health.    
 > Probably even more important than group identity and good health are the life lessons that participation in a sport provides. Setting a goal and working toward it, collaborating with others and putting a plan into action are all good lessons that can be learned on the playing field.
 
 **Transportation**
