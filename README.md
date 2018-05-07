@@ -39,6 +39,7 @@
 > reward the employees financially 
 > meet their material demand 物质需求
 > It's hard-earned money 来之不易
+
 不重要：  
 > the sense of belonging 归属感 
 > room for professional growth and career advancement 职业上升空间
