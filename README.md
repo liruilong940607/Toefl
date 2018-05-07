@@ -61,6 +61,81 @@ Cooking Good?
 
 ### **段子积累**
 
+**Education**
+
+> I believe that parents' involvement in most American public schools has been declining. Today, parents are puzzled by all the new teaching methods and new terminology(术语) used to introduce them. They can't find out what their kids are supposed to be learning, let alone(更别提) whether or not they are being properly educated. The shortage of textbooks, the flexibility of standards, the lack of work coming home, the computerized report cards - all help to keep parents away from schooling. And well-intentioned teachers have been effectively discouraging parents from helping their kids at home on the grounds(理由是) that the students may be confused by the different approaches. The result? Even more distance.
+
+> Other challenges that students face are the constant temptations(诱惑) that surround them every day. Cell phones, music players and even video games are all being carried into classrooms. With the general noise and confusion in today's classroom, it's easy to hide and even use them during class, which prevents the user and often people around them from getting the most out of the curriculum(课程).
+
+
+**Animals**
+
+> Pets can substitute for the absence of other family members. Sometimes a couple who is unable to have children will adopt pets and treat them like babies. They shower on their pets the love that they might have provided a child and receive affection and companionship in return. Many people who live alone enjoy the companionship of a pet instead of loved ones who are at a distance or have passed away. The pet becomes a family member for these people and deserve the same kind of treatment that a family menber would have.
+
+**Friends**
+
+> Close friendships have numerous benefits. For one thing, loyal friends are always there to support each other, no matter what happens. Some friendships last many years, becoming deeper and more meaningful with time. Also, people can be themselves with friends. No one has to worry about not being perfect when he/she is among friends. Finally, nothing can be more satisfying than the intimate(亲密的) conversations that true friends can have. They can confide(吐露) in and trust each other.
+
+**Technology**
+
+> I believe technology can positively contribute to humans's keeping alive of traditional skills and ways of life. For example, the populations of some Pacific islands are too small to have regular schools. Their educational authorities have been able to use the Internet to deliver schooling online to the local kids rather than sending them to the mainland. Also, the modern refrigeration technology has been used to keep alive the traditional ways of producing salmon. As a result, they can now be ordered from and delivered to anywhere in the world.
+
+**Leisure** - **Sports**
+
+> Many people enjoy participating in sports for recreation(娱乐) because it offers an opportunity to be part of a group. As a participant, you can join a team and enjoy all the benefits of membership, from shared experiences to a sense of belonging. Moreover, in training for a sport, an exercise routine contributes to your health.
+> Probably even more important than group identity and good health are the life lessons that participation in a sport provides. Setting a goal and working toward it, collaborating with others and putting a plan into action are all good lessons that can be learned on the playing field.
+
+**Transportation**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
