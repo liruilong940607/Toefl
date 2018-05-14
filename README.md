@@ -97,11 +97,11 @@ Cooking Good?
 
 ** The Peking Zoo **
 
-> I really enjoy spending time with plants and animals.
-> Fresh air, Good smell of flowers, Cute animals make me relax, loose my tensions/pressure.
-> I also like to study animals and plants.
-> Seeing them in front of their faces can make me better understand them than from the textbooks.
-> And those signs, in front of each kind of plants or animals, with descriptions on it, help me knowing them better.
+> I really enjoy spending time with plants and animals.   
+> Fresh air, Good smell of flowers, Cute animals make me relax, loose my tensions/pressure.   
+> I also like to study animals and plants.   
+> Seeing them in front of their faces can make me better understand them than from the textbooks.   
+> And those signs, in front of each kind of plants or animals, with descriptions on it, help me knowing them better.   
 
 适用问题：
 > Think of one place where you have never visited but where you would really like to go. Explain what it is that interests you about this place.
