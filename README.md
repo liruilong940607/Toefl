@@ -61,6 +61,10 @@ Cooking Good?
 
 ### **段子积累**
 
+**独立写作**
+
+With the accelerating development of our society, arts and athletics have been playing two important roles in our daily life. It's hard to judge which has more significance
+
 **Education**
 
 > I believe that parents' involvement in most American public schools has been declining. Today, parents are puzzled by all the new teaching methods and new terminology(术语) used to introduce them. They can't find out what their kids are supposed to be learning, let alone(更别提) whether or not they are being properly educated. The shortage of textbooks, the flexibility of standards, the lack of work coming home, the computerized report cards - all help to keep parents away from schooling. And well-intentioned teachers have been effectively discouraging parents from helping their kids at home on the grounds(理由是) that the students may be confused by the different approaches. The result? Even more distance.[家长很难融入教育体系；电子化的教育；多样化的教育模式会confuse]
@@ -92,6 +96,8 @@ Cooking Good?
 **Government** - **Healthcare**
 
 > Socialized health care systems generally don't make sense. First, socialized medicine is extremely expensive - no matter how it is paid for. For example, in Sweden and Saudi Arabia(沙特阿拉伯), two medically socialized countries, the costs have increased to approximately 40 percent of the budget(预算) of each country each year. Specifically, in Sweden, this money comes from high taxes while in Saudi Arabia, it comes from petrodollars. More than that, the socialized system is rarely efficient. Often, it's hard to find an appropriate doctor. Worse yet(更糟糕的是), it's even harder to get examined by a doctor. According to one recent case in Algeria, a woman had to wait eight months just to have her tooth pulled out. That's because in countries with socialized medicine, everyone wants to go to the doctor or dentist, no matter how small the problem might be.[社会医疗不好：非常耗资（国家40%预算）-> high taxes；效率低下（小病也要去看->等八个月拔一颗牙）]
+
+
 
 ### **口语素材**
 
