@@ -93,8 +93,18 @@ Cooking Good?
 
 > Socialized health care systems generally don't make sense. First, socialized medicine is extremely expensive - no matter how it is paid for. For example, in Sweden and Saudi Arabia(沙特阿拉伯), two medically socialized countries, the costs have increased to approximately 40 percent of the budget(预算) of each country each year. Specifically, in Sweden, this money comes from high taxes while in Saudi Arabia, it comes from petrodollars. More than that, the socialized system is rarely efficient. Often, it's hard to find an appropriate doctor. Worse yet(更糟糕的是), it's even harder to get examined by a doctor. According to one recent case in Algeria, a woman had to wait eight months just to have her tooth pulled out. That's because in countries with socialized medicine, everyone wants to go to the doctor or dentist, no matter how small the problem might be.[社会医疗不好：非常耗资（国家40%预算）-> high taxes；效率低下（小病也要去看->等八个月拔一颗牙）]
 
+### **口语素材**
 
+** The Peking Zoo **
 
+> I really enjoy spending time with plants and animals.
+> Fresh air, Good smell of flowers, Cute animals make me relax, loose my tensions/pressure.
+> I also like to study animals and plants.
+> Seeing them in front of their faces can make me better understand them than from the textbooks.
+> And those signs, in front of each kind of plants or animals, with descriptions on it, help me knowing them better.
+
+适用问题：
+> Think of one place where you have never visited but where you would really like to go. Explain what it is that interests you about this place.
 
 
 
