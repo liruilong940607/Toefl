@@ -106,6 +106,10 @@ Cooking Good?
 适用问题：
 > Think of one place where you have never visited but where you would really like to go. Explain what it is that interests you about this place.
 
+** Childhood is important **
+
+> Friends: You can make friends when you are child. You play with them, then you became friends! and with time past, the friendship became deeper and deeper. Most adult people's best friend are from their childhood. The friendship is pure and unforgetable.  
+> Interests: Your interests also depend on the things you do during your childhood. For example, when I was 8 or 9 years old, I started to learn ice-skatting, with my friends. Although I only study it for one year, it now become my most favourite sports and I'm really good at it, among those amateurs. 
 
 
 
