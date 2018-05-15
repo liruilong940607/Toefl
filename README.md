@@ -118,24 +118,71 @@ With the accelerating development of our society, arts and athletics have been p
 > Interests: Your interests also depend on the things you do during your childhood. For example, when I was 8 or 9 years old, I started to learn ice-skatting, with my friends. Although I only study it for one year, it now become my most favourite sports and I'm really good at it, among those amateurs. 
 
 
+### **口语模版**
+
+Q3 
+
+reading会给你一个announcement/letter等，内容涉及一个proposal等，会给出两个理由来支撑opinion  
+Listening part 一男一女进行对话，其中一人具有鲜明观点--agree or disagree 但是注意！80%情况下主人公会给出三个point，而不是大多人认为的两个。其中两个是针对reading的回应，另外一个是新延伸的point  
+
+模版一
+
+> 第一句话：A letter from a student suggests that…because( ) and also( ).如果是学校通知，那第一句话就可以是：The university announced to ( ) because and also( ).    
+> 第二句： The student in the conversation strongly agrees/disagrees with the proposal.     
+> 理由：Firstly, she points out that… Also, she says that…
+
+模版二
+
+1）表达观点 agree or disagree + reading的main point
+2) r1 (reading reference1) + p1, f1 (listening内容)
+3) r2 (reading reference2) + p2, f2
+4) p3 f3 ( further point, 无reading 对应)
+
+来看具体答法 
+1） In the conversation, the m/w (dis)agrees with ...main point... in the reading material. And (s)he has given several reasons. 
+2) First, with the regard to the wish/claim/concern in the reading material that ...r1..., he/she mentioned that ...f1... , and thus ...p1...
+3) Also, facing the wish/claim/concern ... r2... , he/she points out that... p2... , as ...f2...
+4) Finally, he she further stated that...p3/f3
+
+
+Q4
+
+Reading中会讲一个terminology术语，标题即内容。这个术语的解释会分为两组key word
+Listening中professor会讲一个case说明此术语，并且请谨记，case中一定会出现相应内容和key word 1 / key word 2分别对应！
+试想，如果让你解释清一个术语，你要做的其实就是解释清那两个key word就OK了。
+那联系到答题怎么答呢？
+1.概括reading中术语内容
+2.听力材料case描述
+3.听力材料illustration 1 与 key word 1 对应
+4.听力材料illustration 2 与 key word 2 对应
+
+1.先讲reading: According to the reading material, (topic) enables/causes (subject) to (K1+K2)注解：enable可用作正面效果，cause负面效果
+2.总起lecture: In the lecture, we heard about a case to illustrate it, which was based on (case description)
+3.K1对应： Particularly, we heard from the professor that (I1), which shows that (K1 passive)注解：K1可做变为被动形式，以避免用词重复感
+4.K2对应：When it comes to how (K2), there was evidence from the listening that (I2)
+
+
+> The reading passage gives the definition of XXXX, which means that XXXX    
+> The professor uses an example to further explain this concept.    
+>  <开始复述听力材料>   
 
 
 
+Q5 
 
+为listening+ speaking形式，其中Q5为校园生活内容
+listening：一男一女谈话，其中一方出现困扰的问题，谈话双方会提出两个解决方案，但方案都存在问题。
+题目要求: The speakers discuss two possible solutions to the woman’s problem. Briefly summarize the problem then state which solution you recommend and explain why.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+problem: In the conversation, the w/m's problem is ...p(a)..., but ...p(b)...
+solutions: 对应上文：
+1) The m/w suggested that ..., while the w/m thought of... 
+2) The w/m thought of two ideas: either to S1 or to S2
+3) the m/w gave two suggestions: either to S1 or to S2
+challenge: (看时间省略)
+However, neither of two ideas seemed to work out, as the former + C1 , and the later + C2
+your solution: 
+If I were the w/m in the conversation, I prefer the former/ later, because... 
 
 
 
